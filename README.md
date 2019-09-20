@@ -1,2 +1,0 @@
-# mybio
-about wisler michel
